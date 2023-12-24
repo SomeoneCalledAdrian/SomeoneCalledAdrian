@@ -1,0 +1,5 @@
+-  Hello, I’m @SomeoneCalledAdrian
+-  I’m interested in nothing
+-  I’m currently learning how to open and close a door
+-  I’m looking to collaborate on building hell and making it a better place
+-  How to reach me : don't, i am an introvert :)
